@@ -1,2 +1,2 @@
 com918
-https://karta1252839.github.io/Cali/index.html
+https://karta1252839.github.io/com918/index.html
